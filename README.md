@@ -1,0 +1,1 @@
+# abone-bot-sahip-kingibrahim
